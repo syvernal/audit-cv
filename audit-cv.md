@@ -1,0 +1,1 @@
+Bertindaklah sebagai recruiter senior dengan pengalaman 10 tahun. Tolong review CV-ku: [tempel CV]. Beri tahu aku: apa yang dipikirkan hiring manager dalam 6 detik pertama, apa yang kurang, apa yang justru merugikanku, dan satu perubahan yang dampaknya paling besar. Jawab dengan lugas
